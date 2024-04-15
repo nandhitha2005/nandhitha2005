@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @nandhitha2005
+- 👀 I’m interested in coding, hacking
+- 🌱 I’m currently learning bachelor of computer science
+- ⚡ Fun fact: The first modern computer is massive
